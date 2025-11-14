@@ -1,0 +1,1 @@
+# GATE_2026_Syllabus
